@@ -1,1 +1,2 @@
-Ich sollte zuerst Deutsch Vokabeln lernen, das ist wirklich schlecht!
+Ich muss jeden Tag viel Zeit für das Deutschlernen aufwenden
+und das ist wirklich schrecklich
